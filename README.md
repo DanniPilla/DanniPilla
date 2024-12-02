@@ -2,11 +2,11 @@
 
 
 - 👀 I’m interested in: 
-Videogames and Japanese fashion.
+Videogames, horror movies and Japanese fashion.
 - 🌱 I’m currently learning: 
-React.
+DBMS. 
 - 💞️ I’m looking to collaborate on: 
-Beginner friendly projects so I can further develop my knowledge.
+In general! I am eager to grow my knowledge and skills.
 - 📫 How to reach me: 
 daniellapilla08@gmail.com or find me on linkedin https://www.linkedin.com/in/daniella-pilla-16ab37216/
 - 😄 Pronouns: 
